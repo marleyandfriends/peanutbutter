@@ -3,5 +3,5 @@
 Cottage Cheese 🤢
 and strawberries 🍓
 and blueberriesssssss
-and blackberries hi
+and blackberries,
 berries are not fruits says jef
