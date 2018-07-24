@@ -4,4 +4,4 @@ cottage cheese
 and strawberries
 and blueberries
 and blackberries
-berries are not fruits
+berries are not fruits. 
