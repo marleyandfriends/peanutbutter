@@ -1,3 +1,3 @@
 # peanutbutter
 
-EAT!
+ 1
