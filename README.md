@@ -1,6 +1,6 @@
 # Pea
 
-Cottage Cheese 🤢
+ 1
 and strawberries 🍓
 and blueberries,
 and blackberries,
