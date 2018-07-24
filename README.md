@@ -1,6 +1,6 @@
 # Peaches and Cream
 
-cottage cheese
+Cottage Cheese 🤢
 and strawberries
 and blueberries
 and blackberries
