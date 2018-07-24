@@ -1,4 +1,4 @@
-# Peaches and Cream
+# Pea
 
 Cottage Cheese 🤢
 and strawberries 🍓
