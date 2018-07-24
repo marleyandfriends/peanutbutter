@@ -2,6 +2,6 @@
 
 Cottage Cheese 🤢
 and strawberries 🍓
-and blueberries
+and blueberriess
 and blackberries hi
 berries are not fruits. 
