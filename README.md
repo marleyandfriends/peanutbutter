@@ -1,3 +1,3 @@
 # peanutbutter!
 
-testing author only views suggested fix
+testing that only author views suggested fix
