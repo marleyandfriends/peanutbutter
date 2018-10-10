@@ -1,5 +1,5 @@
 # peanutbutter!
 
 Peanutbutter
-and Jam
+and Strawberry jam
 makes a delicious combination
